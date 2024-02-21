@@ -1,3 +1,3 @@
-# CurriculumVitae-CV-2023/2024
+# Curriculum Vitae CV 2024
 
 Phelipe Darc - CV
